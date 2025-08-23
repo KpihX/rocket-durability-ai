@@ -1,0 +1,2 @@
+- Link to HI AI Camp ressources : https://drive.google.com/drive/folders/1ddIPqaRcs80SLb8CdXedkpDn86X3mFDa?usp=sharing
+- Link to HI AI Camp other ressources : https://drive.google.com/drive/folders/1BJAklj_Abvr3vEAkdfSwWRvg1tuTU3oy
